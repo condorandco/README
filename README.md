@@ -17,9 +17,10 @@
 </p>
  <p align="center">
  My socials!<br>
-☆ <a href="https://artfight.net/~deadeyecassidy">Artfight</a> ☆
- <a href="https://deadeyecassidy.carrd.co/">Carrd</a>
-☆ <a href="https://toyhou.se/aureition">Toyhouse</a> ☆
-   <a href="https://www.tiktok.com/@deadeyecassidy">Tiktok</a> ☆
+☆ <a href="https://deadeyecassidy.carrd.co/">Carrd</a>
+☆ <a href="https://deadeyecassidy.straw.page/">Strawpage (you can sign here!)</a> ☆
+  <a href="https://toyhou.se/aureition">Toyhouse</a> ☆
+  <a href="https://www.tiktok.com/@deadeyecassidy">Tiktok</a> ☆
+  <a href="https://artfight.net/~deadeyecassidy">Artfight</a> ☆
  </p>
  
